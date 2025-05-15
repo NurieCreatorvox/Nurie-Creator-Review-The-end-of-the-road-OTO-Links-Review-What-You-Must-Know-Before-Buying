@@ -5,6 +5,63 @@
 <p class="" data-start="593" data-end="908">This isn’t just another flashy piece of software promising the moon. This is the <em data-start="674" data-end="685">real deal</em>—a powerful, intuitive tool that puts the power of artificial intelligence right at your fingertips. And it does so in a way that’s <em data-start="817" data-end="842">so easy, so accessible,</em> and so ridiculously effective that it almost feels like cheating.</p>
 <p class="" data-start="910" data-end="1073">Let me walk you through why <strong data-start="938" data-end="955">Nurie Creator</strong> is not just a good product—it’s a must-have for <em data-start="1004" data-end="1012">anyone</em> in America who’s serious about turning creativity into cash.</p>
 
+# 🖍️ Nurie Creator – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below. All bonuses are delivered only when you use the affiliate link and follow the steps below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`  
+🎯 **Affiliate ID Required for Bonus Eligibility**
+
+---
+
+## 🧩 Front End (FE): Nurie Creator  
+🎨 Create & Sell Printable Coloring Pages & Books in Minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`
+
+---
+
+## 🚀 OTO 1: Nurie Creator PRO  
+⚙️ Unlock Advanced Features and Templates  
+👉 `royaltyprints[dot]co/nurie-creator-pro-iichi/`
+
+---
+
+## 🔓 OTO 2: Nurie Creator ELITE  
+📈 Get More Tools, Content, and Profit Potential  
+👉 `royaltyprints[dot]co/nurie-creator-elite-ni/`
+
+---
+
+## 🎨 OTO 3: 100 DFY Book Covers  
+📚 Professionally Designed Covers Ready for Use  
+👉 `royaltyprints[dot]co/nurie-creator-100-san/`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/nurie-creator/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Instant Access:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Nurie Creator** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Don’t forget to confirm Step 2 via email!
+
+---
 
 <hr class="" data-start="1075" data-end="1078" />
 
@@ -132,3 +189,60 @@
 
 <hr class="" data-start="7225" data-end="7228" />
 <p class="" data-start="7230" data-end="7294"><strong data-start="7230" data-end="7294" data-is-last-node="">Highly Recommended. Five Stars. A Game-Changer for Creators.</strong></p>
+# 🖍️ Nurie Creator – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below. All bonuses are delivered only when you use the affiliate link and follow the steps below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`  
+🎯 **Affiliate ID Required for Bonus Eligibility**
+
+---
+
+## 🧩 Front End (FE): Nurie Creator  
+🎨 Create & Sell Printable Coloring Pages & Books in Minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`
+
+---
+
+## 🚀 OTO 1: Nurie Creator PRO  
+⚙️ Unlock Advanced Features and Templates  
+👉 `royaltyprints[dot]co/nurie-creator-pro-iichi/`
+
+---
+
+## 🔓 OTO 2: Nurie Creator ELITE  
+📈 Get More Tools, Content, and Profit Potential  
+👉 `royaltyprints[dot]co/nurie-creator-elite-ni/`
+
+---
+
+## 🎨 OTO 3: 100 DFY Book Covers  
+📚 Professionally Designed Covers Ready for Use  
+👉 `royaltyprints[dot]co/nurie-creator-100-san/`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/nurie-creator/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Instant Access:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Nurie Creator** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Don’t forget to confirm Step 2 via email!
+
+---
